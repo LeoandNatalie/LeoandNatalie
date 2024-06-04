@@ -2,7 +2,7 @@
 - 👀 I’m interested in plaing the Guitar,basketball,volleyball,making coffee,mixing cocktails,travelling
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me mail:leochengjie6@gmail.com
+- 📫 How to reach me mail:837130934@qq.com
 
 <!---
 Leo/Leo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
